@@ -6,3 +6,7 @@ Sou aluna do Instituto Federal De Mato Grosso do Sul, a depressão nao vai me ve
 
 Cursando o ensino médio.
 Tenho mestrado em irritar mamãe!
+
+# Comida favorita
+
+Lasanha e strogonoff
