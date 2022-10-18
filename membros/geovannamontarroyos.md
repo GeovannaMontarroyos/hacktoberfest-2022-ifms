@@ -10,3 +10,7 @@ Tenho mestrado em irritar mamãe!
 # Comida favorita
 
 Lasanha e strogonoff
+
+# Esportes que ja pratiquei ou pratico
+
+Karate, vôlei, jujitsu, muay thai e judo
